@@ -12,3 +12,9 @@ https://www.youtube.com/watch?v=1o0hFsJw1Eo
 контент: https://steamcommunity.com/sharedfiles/filedetails/?id=3206947542
 
 плыв
+
+
+
+
+https://github.com/chechensky/chedara-box-immersive/assets/158810793/68540c78-84dc-4e7d-9607-50ccda6df5ba
+
